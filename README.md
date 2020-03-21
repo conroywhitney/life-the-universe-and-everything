@@ -57,5 +57,24 @@ When I've told people that I believe that the opposite of "Love" isn't "Hate", b
 > 
 > -- Bill Hicks, [It's Just a Ride](https://www.youtube.com/watch?v=lqv8Os-AdUo)
 
+### Just a Ride
+The concept that this life is "just a ride" can be seen all over pop culture. One of my favourite songs is "Just a Ride" by Jem:
 
+> It's just a ride, it's just a ride
+> No need to run, no need to hide
+> It'll take you round and round
+> Sometimes you're up
+> Sometimes you're down
+> It's just a ride, it's just a ride
+> Don't be scared
+> Don't hide your eyes
+> It may feel so real inside
+> But don't forget it's just a ride
+> (But don't forget enjoy the ride)
+>
+> -- Jem, [Just a Ride](https://www.youtube.com/watch?v=vPeY7Mq3hC0)
+
+But this concept that life is "just a ride" is thousands of years old. Religions like Hinduism and Buddhism (as far as I undertand anyway) talk about us being part of the Self with a capital S -- the ultimate ground of being, the universe, collective consciousness, God, whatever you want to call it. But we each around as self with a lower-case s -- our particular, individual ego consciousness. And the whole point of us having these experiences is to A) appreciate existance in all is grandeur; and B) to learn & grow as spiritual beings.
+
+Whenever I lose sight of this perspective, I like to flip on some [Alan Watts](https://www.youtube.com/results?search_query=alan+watts). Pretty much any of his lectures have some life-changing thoughts in them.
 
