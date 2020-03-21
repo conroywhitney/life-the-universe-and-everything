@@ -101,7 +101,3 @@ At one point in my life (after my divorce, but before I'd worked through the emo
 This song just came on Spotify. It's one that my ex-wife and I used to listen to during a very special period in our marriage:  "I do believe it's true that there are roads left in both of our shoes, but if the silence takes you then I hope it takes me too. So brown-eyes I'll hold you near because you're the only song I want to hear -- a melody softly soaring through my atmosphere."
 
 
-
-
-
-
