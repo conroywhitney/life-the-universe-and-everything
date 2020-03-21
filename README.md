@@ -81,6 +81,11 @@ Whenever I lose sight of this perspective, I like to listen to some lectures by 
 The metaphor that sticks out most to me is that of a droplet of water on a wave. Before the wave comes along, the water is a part of a vast and inter-connected ocean. No water molecule stands out more than any other. But then this energy comes along, and raises some of the molecules up above the rest of the ocean. As the wave crests, a single droplet might separate from the wave and be suspended in the air. Life is that moment where we, as water droplets, are floating in air. We have this brief opportunity to look around and appreciate the beauty of all of existance. However, we see that this moment is fleeting -- that we will soon drop down and become part of the ocean. But since we forget that we came from the ocean to begin with, we are afraid. We think of it as losing our droplet-ness, instead of gaining our ocean-ness.
 
 ### On Death
+I think that during these last few weeks and months, every person in the world has given a lot more thought to death than they usually would. It's not often in the front of our minds; but constantly seeing numbers on a television screen has a way of reminding us of our own mortality.
+
+I have come to peace with not knowing how this whole pandemic will end. I may get sick. I may need to be hospitalized. I may die. But my new phrase is: "It'll all be okay, even if it isn't". As in, no matter how the future plays out, it will be what it will be -- qué será, será. I'm no expert on Daoism, but my understanding that no matter how things are right now, they are part of The Way -- as in, the way that things are supposed to be. Judeo-Christianity has this same concept when people say that "Everythig has a reason" or "It's God's Will". This is an incredible coping mechanism during periods of uncertainty. There's no need to fear the outcome; rather, we should just accept things as they are, explicitly because they are how they are. Re-reading that sentence, I'm not sure if I expressed it well. But in other words, if we were to wish that things were different, then we would suffer -- because we cannot change the past. So rather than suffer, we can find peace in accepting things the way they are.
+
+
 
 
 
