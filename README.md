@@ -85,6 +85,8 @@ I think that during these last few weeks and months, every person in the world h
 
 I have come to peace with not knowing how this whole pandemic will end. I may get sick. I may need to be hospitalized. I may die. But my new phrase is: "It'll all be okay, even if it isn't". As in, no matter how the future plays out, it will be what it will be -- qué será, será. I'm no expert on Daoism, but my understanding that no matter how things are right now, they are part of The Way -- as in, the way that things are supposed to be. Judeo-Christianity has this same concept when people say that "Everythig has a reason" or "It's God's Will". This is an incredible coping mechanism during periods of uncertainty. There's no need to fear the outcome; rather, we should just accept things as they are, explicitly because they are how they are. Re-reading that sentence, I'm not sure if I expressed it well. But in other words, if we were to wish that things were different, then we would suffer -- because we cannot change the past. So rather than suffer, we can find peace in accepting things the way they are.
 
+All that to say, I'm not afraid of Death. I may be afraid of Dying -- i.e., the time leading up to Death, whether that be seconds or weeks or years. Funnily enough, it's the fear of being in pain during the process of dying that causes me the most anxiety. I feel like whatever is on the other side of this mortal veil is either a) a super positive, wonderful thing or b) nothingness. I don't believe there is an option c) of terrible suffering. As I'd mentioned before, I think this life has enough suffering as is when we're in a bad mental place.
+
 
 
 
