@@ -76,5 +76,14 @@ The concept that this life is "just a ride" can be seen all over pop culture. On
 
 But this concept that life is "just a ride" is thousands of years old. Religions like Hinduism and Buddhism (as far as I undertand anyway) talk about us being part of the Self with a capital S -- the ultimate ground of being, the universe, collective consciousness, God, whatever you want to call it. But we each around as self with a lower-case s -- our particular, individual ego consciousness. And the whole point of us having these experiences is to A) appreciate existance in all is grandeur; and B) to learn & grow as spiritual beings.
 
-Whenever I lose sight of this perspective, I like to flip on some [Alan Watts](https://www.youtube.com/results?search_query=alan+watts). Pretty much any of his lectures have some life-changing thoughts in them.
+Whenever I lose sight of this perspective, I like to listen to some lectures by [Alan Watts](https://www.youtube.com/results?search_query=alan+watts). I first was introduced to him with (and highly recommend reading) his ["The Book: On the Taboo of Knowing Who You are"](https://www.beezone.com/alanwatts/taboobook/the_book_chap_1.html). I found that 10 years ago during my NYC hippy days, and it literally changed my life. It was a new way of seeing myself and my place in this world.
+
+The metaphor that sticks out most to me is that of a droplet of water on a wave. Before the wave comes along, the water is a part of a vast and inter-connected ocean. No water molecule stands out more than any other. But then this energy comes along, and raises some of the molecules up above the rest of the ocean. As the wave crests, a single droplet might separate from the wave and be suspended in the air. Life is that moment where we, as water droplets, are floating in air. We have this brief opportunity to look around and appreciate the beauty of all of existance. However, we see that this moment is fleeting -- that we will soon drop down and become part of the ocean. But since we forget that we came from the ocean to begin with, we are afraid. We think of it as losing our droplet-ness, instead of gaining our ocean-ness.
+
+### On Death
+
+
+
+
+
 
