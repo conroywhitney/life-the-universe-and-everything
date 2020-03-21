@@ -87,7 +87,18 @@ I have come to peace with not knowing how this whole pandemic will end. I may ge
 
 All that to say, I'm not afraid of Death. I may be afraid of Dying -- i.e., the time leading up to Death, whether that be seconds or weeks or years. Funnily enough, it's the fear of being in pain during the process of dying that causes me the most anxiety. I feel like whatever is on the other side of this mortal veil is either a) a super positive, wonderful thing or b) nothingness. I don't believe there is an option c) of terrible suffering. As I'd mentioned before, I think this life has enough suffering as is when we're in a bad mental place.
 
+Besides, I feel like I've led a good, long life. In fact, writing this is the last thing that I feel like I need to do. If I were to die tonight, I honestly would not regret it. I'm in no way saying that I have a death wish. Heck no. I've got lots of things I'd love to continue doing. This world has an endless amount of places to explore, people to know, and things to learn. And neither do I mean that I don't have regrets in life -- oh jeez, do I, mostly about friends, family, & partners that I've hurt through my own selfishness.
 
+### On Regret
+According to [16 Personalities](https://www.16personalities.com/), that whether you are [Assertive vs. Turbulent](https://www.16personalities.com/articles/identity-assertive-vs-turbulent) defines whether you say "Lesson learned, now move on" vs. "I should keep replaying past experiences to see what new things I can learn from them". Neither one is right or wrong. It's just a personality type. I happen to be the latter. And boy oh boy, my brain apparently really likes bringing up all the times in my past that I have wronged others. I guess maybe it's like a dog who nudges you because they want your attention -- maybe I should be reaching out to right these wrongs. That, or just work through them and let them go. But regret is something with which I'm intimately familiar.
+
+At one point in my life (after my divorce, but before I'd worked through the emotions surrounding my divorce), I wrote that I don't have any regrests, because all of my choices have led me to where I am today, and I wouldn't change anything. Well, the latter half of that is true, of course -- not only wouldn't I change anything, but I can't. However, that doesn't mean that I don't regret some of the things I've said & done -- or not said & not done. I don't regret these for my own self -- I only regret the times where I've negatively impacted others. It's the hurt that I've spread to those I love which I wish I could take back.
+
+"Hurt people hurt people" is such a popular song title that when searching for the one I wanted to listen to, I couldn't find it out of the dozens of other songs. But it's so vital to internalize that concept. The reason we lash out is because we're feeling hurt. But we just pass on that hurt to the other person. Who, if they don't think about it, pass it on to someone else. Fear is like a virus. But Love is contageous, too. Doing something nice for someone can completely change their view of the world. It can snap them out of themselves and help them be present and engaged with the world & fellow humans around them. At which point they are more likely to help out other people, ad infinitum.
+
+
+### Random
+This song just came on Spotify. It's one that my ex-wife and I used to listen to during a very special period in our marriage:  "I do believe it's true that there are roads left in both of our shoes, but if the silence takes you then I hope it takes me too. So brown-eyes I'll hold you near because you're the only song I want to hear -- a melody softly soaring through my atmosphere."
 
 
 
