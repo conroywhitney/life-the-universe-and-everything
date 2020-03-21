@@ -46,7 +46,16 @@ But for me, the flipside of gratitude is guilt. Instead of coming from a place o
 
 
 ### On Fear vs. Love
+When I am trying to make a decision, sometimes instead of a "Pros" and "Cons" list, I make a quadrant with "Fear vs. Love" on one axis, and "Positive/Negative" on another. So the four quadrans would be "Fear-based reasons for doing this thing", "Fear-baesd reasons to *not* do this thing", "Love-based reasons for doing this thing", and "Love-based reasons to *not* do this thing". It's subtle, but there's a difference. I make some choices because I'm afraid of what will happen if I don't. Others, I decide to do because they will help me grow and learn. There's a big difference.
 
+When I've told people that I believe that the opposite of "Love" isn't "Hate", but "Fear", I sometimes get some pushback. But I stick by it. Hate is really just an expression of Fear. I'd go even further and say that these two emotions are more than just human constructs -- I feel like they are the yin and yang of the universe. Some religions refer to a spiritual battle between "Good" and "Evil". But if I were to describe it, it'd be more of a struggle between "Love" and "Fear". And I don't personally feel like it's "out there" -- I feel like it's "in here", between our ears. Heaven and Hell are here in this life based entirely on our mindset. I think that Bill Hicks puts it best: 
+
+
+> The world is like a ride in an amusement park. And when you choose to go on it you think it's real because that's how powerful our minds are. And the ride goes up and down and round and round. It has thrills and chills and it's very brightly colored and it's very loud and it's fun, for a while. Some people have been on the ride for a long time and they begin to question: "Is this real, or is this just a ride?" And other people have remembered, and they come back to us, they say: "Hey, don't worry, don't be afraid, ever, because this is just a ride." ... and we kill those people.
+>
+> Ha ha, "Shut him up. We have a lot invested in this ride. Shut him up. Look at my furrows of worry. Look at my big bank account and my family. This just has to be real." It's just a ride. But we always kill those good guys who try and tell us that, you ever notice that? And let the demons run amok. But it doesn't matter, because it's just a ride. And we can change it anytime we want. It's only a choice. No effort, no work, no job, no savings and money. A choice, right now, between fear and love. The eyes of fear want you to put bigger locks on your doors, buy guns, close yourself off. The eyes of love instead see all of us as ONE.
+> 
+> -- Bill Hicks, [It's Just a Ride](https://www.youtube.com/watch?v=lqv8Os-AdUo)
 
 
 
