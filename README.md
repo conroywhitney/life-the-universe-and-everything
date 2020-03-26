@@ -96,6 +96,32 @@ At one point in my life (after my divorce, but before I'd worked through the emo
 
 "Hurt people hurt people" is such a popular song title that when searching for the one I wanted to listen to, I couldn't find it out of the dozens of other songs. But it's so vital to internalize that concept. The reason we lash out is because we're feeling hurt. But we just pass on that hurt to the other person. Who, if they don't think about it, pass it on to someone else. Fear is like a virus. But Love is contageous, too. Doing something nice for someone can completely change their view of the world. It can snap them out of themselves and help them be present and engaged with the world & fellow humans around them. At which point they are more likely to help out other people, ad infinitum.
 
+-----
+
+### Premonition
+
+So I'm not going to lie. My main motivation for writing this is that I've felt for the past few years that I was gonna end up in the hospital for a prolonged illness -- perhaps cancer, perhaps something else. But metaphorically a representation of these thoughts and beliefs which I've kept inside and need to get out. If I am successful in writing them, then I will survive; if I don't, I won't. I realize as I'm typing this how crazy it sounds.
+
+I took part in a fire ceremony in Peru many years ago where I had my future read by watching leaves thrown into a bonfire. What I came away with is that my life is going to be short and relatively meaningless. I know that describes many people's lives. But I feel like it hits home -- I have done a lot of things in my life, but have never really made any difference in this world. I've not really made an impact. There have been people whose lives I have touched to some degree. But there are also people whose lives I have hurt pretty severely. I feel like they sorta cancel out.
+
+Anyway, I feel like that time is upon me, now. A couple weeks ago I had the realization that this was it. If I were to make a wager, I feel like I'm going to get coronavirus, but that's not the important part. Having it will lead to an x-ray of my chest, which is going to reveal a growth. I don't know what happens after that, except that I will have the opportunity to sit in one place for a few weeks and be able to type this. Maybe that's what this time is right now. I don't really know.
+
+My phrase recently has been "It'll all be OK, even if it isn't." By that I mean, that no matter how all this turns out -- and whether I survive or not -- it's alright; it's how things should be. I don't want to die, but if I do, I feel like I've lived a long life in my 33 years.
+
+I've been married and divorced; I got to experience being a (step-) dad. Being an uncle. I've found someone who felt like home, and then pushed them away. I've learned about lots of parts of myself that I'm not proud of. I've dug through some of my past repressed memories. I've pushed myself outside my comfort zone. I've followed my intuition. I've bartended at a hostel in Machu Picchu, Peru. I've worked on an organic farm in Southern Oregon. I've handled for a dog musher in Alaska. I'm sitting out this COVID-19 pandemic in Mexico. I've learned a lot about this world and how it works. I've met a lot of people, and (at least attempted to) learn how they work. I've learned to let go of future outcomes.
+
+Row, row, row your boat
+Gently down the stream
+Merrily, merrily, merrily, merrily
+Life is but a dream
+
+-----
+
+
+
+
+
+-----
 
 ### Random
 This song just came on Spotify. It's one that my ex-wife and I used to listen to during a very special period in our marriage:  "I do believe it's true that there are roads left in both of our shoes, but if the silence takes you then I hope it takes me too. So brown-eyes I'll hold you near because you're the only song I want to hear -- a melody softly soaring through my atmosphere."
