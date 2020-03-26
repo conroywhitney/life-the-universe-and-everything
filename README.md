@@ -108,18 +108,21 @@ Anyway, I feel like that time is upon me, now. A couple weeks ago I had the real
 
 My phrase recently has been "It'll all be OK, even if it isn't." By that I mean, that no matter how all this turns out -- and whether I survive or not -- it's alright; it's how things should be. I don't want to die, but if I do, I feel like I've lived a long life in my 33 years.
 
-I've been married and divorced; I got to experience being a (step-) dad. Being an uncle. I've found someone who felt like home, and then pushed them away. I've learned about lots of parts of myself that I'm not proud of. I've dug through some of my past repressed memories. I've pushed myself outside my comfort zone. I've followed my intuition. I've bartended at a hostel in Machu Picchu, Peru. I've worked on an organic farm in Southern Oregon. I've handled for a dog musher in Alaska. I'm sitting out this COVID-19 pandemic in Mexico. I've learned a lot about this world and how it works. I've met a lot of people, and (at least attempted to) learn how they work. I've learned to let go of future outcomes.
+I've been married and divorced; I got to experience being a (step-) dad. Being an uncle. I've found someone who felt like home, and then pushed them away. I've learned about lots of parts of myself that I'm not proud of. I've overcome addiction. I've dug through some of my past repressed memories. I've pushed myself outside my comfort zone. I've followed my intuition. I've bartended at a hostel in Machu Picchu, Peru. I've worked on an organic farm in Southern Oregon. I've handled for a dog musher in Alaska. I'm sitting out this COVID-19 pandemic in Mexico. I've learned a lot about this world and how it works. I've met a lot of people, and (at least attempted to) learn how they work. I've learned to let go of future outcomes.
 
-Row, row, row your boat
-Gently down the stream
-Merrily, merrily, merrily, merrily
-Life is but a dream
+> Row, row, row your boat
+> Gently down the stream
+> Merrily, merrily, merrily, merrily
+> Life is but a dream
 
 -----
 
+Being honest about myself right now, I am not so impressed, though. I have terrible self-control. I am no good in a relationsihp. I'm too judgemental of other people; too likely to commit the Fundamental Attribution Fallacy. I am narcisitic, impatient, and inconsiderate.
 
+-----
 
-
+### On Vibrations
+Everything in this world is vibrating. All of reality is. And if you think of it as a metaphor, when we are down (like I am right now), I am "vibrating" at a lower frequency. So when hippies talking about "raising their vibration to a higher frequency", it means getting into a better mindset. There's lots of things to do to get to this place, and lots of things *not* to do which would lower you. Eating well (especially vegan); exercising; meditating; helping others. Vs. eating junk, binging on Netflix, always distracting ourselves, and thinking of ourselves first.
 
 -----
 
