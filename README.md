@@ -110,10 +110,13 @@ My phrase recently has been "It'll all be OK, even if it isn't." By that I mean,
 
 I've been married and divorced; I got to experience being a (step-) dad. Being an uncle. I've found someone who felt like home, and then pushed them away. I've learned about lots of parts of myself that I'm not proud of. I've overcome addiction. I've dug through some of my past repressed memories. I've pushed myself outside my comfort zone. I've followed my intuition. I've bartended at a hostel in Machu Picchu, Peru. I've worked on an organic farm in Southern Oregon. I've handled for a dog musher in Alaska. I'm sitting out this COVID-19 pandemic in Mexico. I've learned a lot about this world and how it works. I've met a lot of people, and (at least attempted to) learn how they work. I've learned to let go of future outcomes.
 
-> Row, row, row your boat
-> Gently down the stream
-> Merrily, merrily, merrily, merrily
-> Life is but a dream
+>Row, row, row your boat
+>
+>Gently down the stream
+>
+>Merrily, merrily, merrily, merrily
+>
+>Life is but a dream
 
 -----
 
@@ -126,12 +129,20 @@ Everything in this world is vibrating. All of reality is. And if you think of it
 
 -----
 
-> Suddenly the world seems such a perfect place
-> Suddenly it moves with such a perfect grace
-> Suddenly my life doesn't seem such a waste
-> The greatest thing you'll ever learn
-> Is just to love
-> And be loved in return
+### Come What May
+
+>Suddenly the world seems such a perfect place
+>
+>Suddenly it moves with such a perfect grace
+>
+>Suddenly my life doesn't seem such a waste
+>
+>The greatest thing you'll ever learn
+>
+>Is just to love
+>
+>And be loved in return
+
 
 I think I’ve been avoiding writing, because I don’t want to process what I’m feeling. Two weeks ago when I wrote about not taking that plane to Brazil, it felt like the world had gone crazy overnight. Since then, the coronavirus has been all anyone talks about, and all I’ve been thinking about. I literally tried the other day to think of anything else, but my mind kept coming around to it. It’s got such a gravity to it, it’s hard to escape.
 
