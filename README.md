@@ -126,6 +126,44 @@ Everything in this world is vibrating. All of reality is. And if you think of it
 
 -----
 
+> Suddenly the world seems such a perfect place
+> Suddenly it moves with such a perfect grace
+> Suddenly my life doesn't seem such a waste
+> The greatest thing you'll ever learn
+> Is just to love
+> And be loved in return
+
+I think I’ve been avoiding writing, because I don’t want to process what I’m feeling. Two weeks ago when I wrote about not taking that plane to Brazil, it felt like the world had gone crazy overnight. Since then, the coronavirus has been all anyone talks about, and all I’ve been thinking about. I literally tried the other day to think of anything else, but my mind kept coming around to it. It’s got such a gravity to it, it’s hard to escape.
+
+Many of us expats here in Mexico are still wondering if we made the right choice by staying, just as those who left wonder if they made the right choice by staying. My philosophy is — it’s the making of the choice that is the important part. Wavering between “will I or won’t I” is a terrible place to be — it requires so much mental capacity that it’s tough to carry on with anything else in life. Deciding is the act of reclaiming that power to be used for another area of life.
+
+A lot of what fed the indecisiveness was fear. When I would find a place of calm and listen to inner self, I over and over felt like this is the right place for me to be at this point. But then when I would read more news, or talk to more people, I would start to question that. Fear is more contagious than even this virus — one author at a prominent publication can infect hundreds of thousands of people. And warding off fear is so difficult.
+
+When I went to Peru for an ayahuasca ceremony many years ago, I remember a moment where I was feeling afraid. The shaman played one of his icaros (magic songs), and I distinctly saw two tiny demons leave my body. One was long and yellow, the other stubby and light blue. And just like that, the fear was gone. As I’ve thought about this over the years, I’ve decided that there is a certain energy that feeds off fear. When it’s hungry, it finds ways to seed thoughts which cause us to be anxious. The only way we can get rid of it is to starve it. To not fear.
+
+I was talking with one of my housemates tonight about the book “The Seat of the Soul” by Gary Zukav. One of her take-aways was that fear is often an indicator of something that we need to work through. When we’re afraid of doing something because of what people will say, or because we don’t know what the future holds, or because we don’t know what comes after death — then we need to pause and center ourselves. We are eternal. We existed before this human experience, and we will exist after. What happens in-between cannot hurt us — not really. For even if this mortal body ceases to function, we still remain.
+
+When I was at the psytrance concert in the desert by the Temple of the Sun last month, one of the take-away thoughts I had was that this body is like a SCUBA suit for our sixth-dimensional selves to exist in this three-dimensional reality. We’ve donned this meat sack and submerged ourselves in the river of time, letting its current carry us along in the fourth-dimension. All the forks in the river represent the fifth-dimension and our different possible futures. But we are the sum total of all of those choices — the sixth dimension.
+
+I don’t believe that my human life will go on forever, but I do believe that I am immortal, as are you. We will wake up from this dream and go “wow, what a ride.” In the words of Bill Hicks:
+
+"The world is like a ride in an amusement park, and when you choose to go on it you think it's real because that's how powerful our minds are. The ride goes up and down, around and around, it has thrills and chills, and it's very brightly colored, and it's very loud, and it's fun for a while. Many people have been on the ride a long time, and they begin to wonder, "Hey, is this real, or is this just a ride?" And other people have remembered, and they come back to us and say, "Hey, don't worry; don't be afraid, ever, because this is just a ride." And we … kill those people. "Shut him up! I've got a lot invested in this ride, shut him up! Look at my furrows of worry, look at my big bank account, and my family. This has to be real." It's just a ride. But we always kill the good guys who try and tell us that, you ever notice that? And let the demons run amok … But it doesn't matter, because it's just a ride. And we can change it any time we want. It's only a choice. No effort, no work, no job, no savings of money. Just a simple choice, right now, between fear and love. The eyes of fear want you to put bigger locks on your doors, buy guns, close yourself off. The eyes of love instead see all of us as one. Here's what we can do to change the world, right now, to a better ride. Take all that money we spend on weapons and defenses each year and instead spend it feeding and clothing and educating the poor of the world, which it would pay for many times over, not one human being excluded, and we could explore space, together, both inner and outer, forever, in peace.”
+
+The way I think about life is that our entire lives and all of our possible futures are already known. They exist in a sixth-dimensional sphere. 
+
+(See this video for what I mean by sixth dimension: https://www.youtube.com/watch?v=JkxieS-6WuA)
+
+The inner contents of the sphere contain a multitude of branches in the fifth dimension.These represent choices. Each segment of each branch is a fourth-dimensional timeline. So as we move around in our normal three dimensions, and as time passes, we come up to these forks in the road — these choices that we have to make (and yes, non-choice is still a choice). When we pick one, we can never know what the other choice held. This is the story of the Chinese farmer and his son.
+
+It matters which choices we make, because that’s what allows us to explore different parts of our sixth-dimensional selves. There’s many parts of ourselves that we will never get to experience. But for me, one of the primary heuristics of how to make a choice is based on how much I will learn from it. Unfortunately, that often means I learn things the hard way. Very infrequently do I take people’s advice :zipper:
+
+I’m not worried of running out of fourth dimensional runway, because I am not just this subjective experience. I am all of the different timelines. I am everything.
+
+I just now thought of it like that “labyrinth” game — the wooden one with the knobs, where you roll a silver ball around on the tracks and try to avoid the holes. Imagine that each one of those is the end of a timeline. But when you fall in the hole — so what? Your human consciousness might be the ball bearing, but you are the game. You can pick it up and put it back and the beginning if you want, or put it back where you left off, it’s up to you. It’s just a game. Krishna consciousnesses (Jesus Christ, The Buddha, Krishna, etc.) are spirits who came here and played an amazing game. They keep reminding us: relax; be kind to each other; you’re not the ball; it’s all going to be OK. And yet when we’re playing, we get so wrapped up in the game, so anxious, and it’s that very anxiety that causes us to not only make mistakes, but also to not enjoy the game.
+
+
+-----
+
 ### Random
 This song just came on Spotify. It's one that my ex-wife and I used to listen to during a very special period in our marriage:  "I do believe it's true that there are roads left in both of our shoes, but if the silence takes you then I hope it takes me too. So brown-eyes I'll hold you near because you're the only song I want to hear -- a melody softly soaring through my atmosphere."
 
