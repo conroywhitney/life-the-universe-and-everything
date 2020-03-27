@@ -192,6 +192,138 @@ As we go through life, the choices we make take us down different paths, but eve
 This doesn't scare me because I don't fear what comes after in this life. I believe it's either nothing, or it's something positive. I don't believe that it's anything negative. I believe we have enough negativity here on this earth -- enough pain, suffering, challenges, and misfortune. We need all of these, because that's how we grow and learn. But the Eternal is a place of rest and peace. We can feel it when we meditate -- when we tap into our higher selves, it's not chaos and indecisiveness -- it's calm and confidence. And such are we.
 
 
+-----
+
+### On Waves
+
+Or how it's impossible to predict anything, ever
+
+
+One of my new nighttime routines is biking five or so minutes down to the beach; taking off my shoes; and walking along the surf until I find a good spot to lay in the sand and watch the stars.
+
+Choosing how far away to be from the ocean is important. Ideally, I want to be close enough that the waves sometimes hit my feet; but far enough away that I don't get completely soaked as I'm lying there.
+
+It is surprisingly difficult to know how far up the beach a given wave will make it. I've watched them for an inordinate amount of time, making predictions, then seeing if I'm right or wrong. Almost every time, I'm way off. Like, not even close.
+
+Waves that seem huge coming in can often be cancelled out by a previous wave receeding. Or conversely, what appears to be just a shallow little thing can sometimes glide over the previous wave and come ten feet further up the beach than any have up to that point.
+
+I honestly don't get it. But then, I think that's just the nature or complex systems -- they're a paradox. Often, if you zoom in, they have very simple rules (waves have speed, depth, angle, and order). Yet when you zoom out and combine them, their interactions become nearly impossible to reason about. Often the only way to make predictions is by running models a bunch of times with different variables and just getting a "just" of what you can "normally" expect.
+
+This can still be useful though, especially if you want to see what a specific set of variables will do. You can keep tweaking that one so you can see the different outcomes based on changing that one deciding factor.
+
+This type of complex modeling is used to prevent and predict wildfires (how much to think the trees, or what will happen if the wind changes direction and picks up speed). It's used in ecology to understand keystone species (what happens when we kill the wolves, so the deer population gets out of control, devastating a particular plant species, which then causes the eradication of a certain insect, for example). It's used in economics to determine how job numbers, debt levels, and spending habits are all related. And of course, it's also used in epidemiology to study how a given virus will spread based on incubation period, communicability, and social distancing.
+
+I kinda feel like this current pandemic -- and the recession that no doubt is coming -- is like one of these waves. Watching it unfold around the world has been surreal. And I'm still not sure whether it's going to beak early and receed, or be one of those rogue waves that catch people by surprise and drag them out to sea.
+
+What I do know is that this isn't a simulation. Real people are being affected, not just by disease and death, but by economic hardship. We can't know how this will end, but it's been inspiring to me to see how people have come together to help each other. I just heard yesterday of people posting their bills online and other people helping to pay them.
+
+No, of course in an ideal world, we wouldn't have this problem. But the reality is that it's been that way for people around the world long before this pandemic.
+
+I guess I'm hoping that when this is all over, when the virus is gone, and the economy returns to normal, that we'll remember the levels of community that helped is get through these tough times. And that we won't go back to our old way or thinking.
+
+We're a global society. A human race. We are all in this together.
+
+
+
+My decision to stay here in Mexico was largely based on the fact that I've got community here. I don't know how things will play out, but I do know that people have my back same as I have theirs.
+
+
+
+
+
+Or how it's impossible to predict anything, ever
+
+
+
+
+
+One of my new nighttime routines is biking five or so minutes down to the beach; taking off my shoes; and walking along the surf until I find a good spot to lay in the sand and watch the stars.
+
+Choosing how far away to be from the ocean is important. Ideally, I want to be close enough that the waves sometimes hit my feet; but far enough away that I don't get completely soaked as I'm lying there.
+
+It is surprisingly difficult to know how far up the beach a given wave will make it. I've watched them for an inordinate amount of time, making predictions, then seeing if I'm right or wrong. Almost every time, I'm way off. Like, not even close.
+
+Waves that seem huge coming in can often be cancelled out by a previous wave receeding. Or conversely, what appears to be just a shallow little thing can sometimes glide over the previous wave and come ten feet further up the beach than any have up to that point.
+
+I honestly don't get it. But then, I think that's just the nature or complex systems -- they're a paradox. Often, if you zoom in, they have very simple rules (waves have speed, depth, angle, and order). Yet when you zoom out and combine them, their interactions become nearly impossible to reason about. Often the only way to make predictions is by running models a bunch of times with different variables and just getting a "just" of what you can "normally" expect.
+
+This can still be useful though, especially if you want to see what a specific set of variables will do. You can keep tweaking that one so you can see the different outcomes based on changing that one deciding factor.
+
+This type of complex modeling is used to prevent and predict wildfires (how much to think the trees, or what will happen if the wind changes direction and picks up speed). It's used in ecology to understand keystone species (what happens when we kill the wolves, so the deer population gets out of control, devastating a particular plant species, which then causes the eradication of a certain insect, for example). It's used in economics to determine how job numbers, debt levels, and spending habits are all related. And of course, it's also used in epidemiology to study how a given virus will spread based on incubation period, communicability, and social distancing.
+
+I kinda feel like this current pandemic -- and the recession that no doubt is coming -- is like one of these waves. Watching it unfold around the world has been surreal. And I'm still not sure whether it's going to beak early and receed, or be one of those rogue waves that catch people by surprise and drag them out to sea.
+
+What I do know is that this isn't a simulation. Real people are being affected, not just by disease and death, but by economic hardship. We can't know how this will end, but it's been inspiring to me to see how people have come together to help each other. I just heard yesterday of people posting their bills online and other people helping to pay them.
+
+No, of course in an ideal world, we wouldn't have this problem. But the reality is that it's been that way for people around the world long before this pandemic.
+
+I guess I'm hoping that when this is all over, when the virus is gone, and the economy returns to normal, that we'll remember the levels of community that helped is get through these tough times. And that we won't go back to our old way or thinking.
+
+We're a global society. A human race. We are all in this together.
+
+My decision to stay here in Mexico was largely based on the fact that I've got community here. I don't know how things will play out, but I do know that people have my back same as I have theirs.
+
+----
+
+### On Decisions
+
+We've all had some tough decisions to make recently. And thing about them is that we can never really know how they're going to play out until after we make them.
+
+Sometimes we try to speculate; to make informed guesses. But often the things we're deciding about are so large and complex that we really can only scratch the surface of all the possible outcomes.
+
+To make our choice even more daunting, it often feels like a given moment is a fork in the road, one which we may not have the ability to revisit. So the choice looms larger and more imposing than before.
+
+When I'm faced with such a choice, my go-to strategy has an acronym: PIG. I start by Procrastinating, putting my decision off for as long as possible. Meanwhile I Ignore the fact that I have a decision to make, letting the anxiety build up until it's unbearable. Then, when I absolutely cannot out it off any longer, I just go with my Gut feeling.
+
+I'd love to flip that narrative around. I would love to first do a Gut check, see how I'm feeling, what emotions come up. I'd then like to Assess the facts, both past and present, to feel like I'm making an informed decision. Based on this information, my aim would be to Maximize possibilities. Then finally, I'd Explore the possibile outcomes a few steps down the road, and really try to put myself in my Future Self's shoes -- will Future Self be happy or angry at Present Self for making this choice.  
+
+Life is a GAME.  I so often forget that.
+
+I'm not trying to trivialize situations like this pandemic. Believe me, I've got loved ones who I'm not sure will make it through the next few months.
+
+What I'm saying is that, when you're playing a game of chess, or Monopoly, or Chutes and Ladders, you can get so wrapped up in it that losing your queen is deviating; having to mortgage your railroads is stressful; and getting stuck in an infinite loop makes you want to flip the table over.
+
+But when you take someone's queen; or collect a mountain of fake money when someone lands on your space; or hit a ladder and skip up a bunch of levels -- you take it equally as real, but happier.
+
+The choices we make matter. They have real outcomes that affect real people. But getting ourselves all in a knot about a decision doesn't help anyone.
+
+We need to let go and just pretend that we're playing a game. It'll be okay.
+
+-----
+
+### On Fear
+
+
+> I must not fear. Fear is the mind-killer. Fear is the little-death that brings total obliteration. I will face my fear. I will permit it to pass over me and through me. And when it has gone past I will turn the inner eye to see its path. Where the fear has gone there will be nothing. Only I will remain.
+> 
+> _— [Bene Gesserit Litany on Fear](https://en.m.wikipedia.org/wiki/Bene_Gesserit)_
+
+I've been thinking about fear lately. Last weekend, someone asked me what I was most afraid of. For me, it's not snakes, spiders, or public speaking. It's dying.
+
+The strange thing is, though, I'm not afraid of Death. I have a sense of peace that whatever comes after this life is either nothing, or it's something positive. Thankfully, I've shaken off my Southern Baptist upbringing which preached constant fear of eternal damnation.
+
+(Because fuck that noise.)
+
+So if I'm afraid of dying but not of Death, then I've decided that what I'm really afraid of are the moments that come right before death. Or perhaps of recognizing my impending demise but feeling like I have no knowledge or control over how things play out. Or to boil it down further, I have a "fear of the unknown" and a "fear of powerlessness".
+The amygdala is the part of our brain that is responsible for fear. We sometimes refer to our "fight or flight" response. It's able to process our environment faster than our thinking brain can, so we might recoil from a snake on the ground before we realize it's just a stick. It's also why we easily get defensive about our beliefs -- our brains literally equate that with a physical threat.
+
+However, in addition to "fight or flight", there's also "freeze". This is the "deer in the headlights" response -- that if we just don't react, that maybe the danger will go away on its own. This is often the go-to for prey, and as a survival mechanism, it's actually quite useful. I've seen my dog pass by a rabbit only a few feet away without noticing; but as soon as the rabbit bolts, the chase is on.
+
+This "freeze" response is also commonly reported by victims of physical, emotional, and/or sexual abuse. It's easy to hear other people's stories and wonder "Why didn't they just leave?" But when it happens, that survival mechanism sometimes is pretty difficult to override.
+
+Some fears are helpful; some are not. Some are signs that we need to challenge ourselves to do something with that scares us; and some are promptings alerting us to danger that we intuitively recognize but couldn't verbalize. Some are things we have control over; and some that we don't. Some we can override with our thinking brains; and some are so deep seeded that all we can do is freeze and wait for the moment to end. Some have perceived negative outcomes; and (strangely enough) some fears are actually of positive things like success, love, and intimacy.
+
+In the end, everything we're scared of will either come to pass, or it won't. One way or another, this too shall pass. Even in Death, once fear is gone, only you will remain.
+
+-----
+
+### On Anxiety
+
+5 million years ago, the meteor that killed the dinosaurs struck here in the Yucatán peninsula. The impact caused the layers of rock (mostly porous limestone) to liquify, become airborne, then fall back down again. When the literal dust had settled, a series of underground caverns and tunnels were formed. As rain seeped down through the ground, these became a series of underground lakes and rivers. Scattered throughout the peninsula are access points called “cenotes” (see-NO-tays) which cave divers use to explore the underwater geology. On Saturday, I got to dive in two of these cenotes, and it was [absolutely stunning](https://www.google.com/search?q=cenotes+scuba&&tbm=isch).
+
+One thing vastly different about cavern diving is that, while you are always in view of the surface, most of the time you have a ceiling of rock over you, usually with stalagmites or other sharp things which you most definitely do not want to accidentally float up into. As I was swimming around, I was very conscious of these pointy things above me, but this was actually un-helpful. The more I focused on not hitting the ceiling, the more anxious I got; the worse I did at breathing slowly & deeply; the worse my buoyancy control became; the more I had huge fluctuations up and down; the more likely I was to hit the pokey parts.
+
+The solution was to just relax and enjoy the present moment. When I did that, I was able to breathe slowly & deeply, which caused my buoyancy control to increase, which meant I was less likely to hit the ceiling. Plus, the experience became just that much more enjoyable.
 
 -----
 
